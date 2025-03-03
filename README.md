@@ -116,4 +116,4 @@ Open a pull request
 
 📞 Contact
 
-👩‍💻 Sonal D Katwe📧 Email: your-sonalkatwe83@gmail.com🔗 GitHub: sonal-katwe
+👩‍💻 Sonal D Katwe📧 Email: sonalkatwe83@gmail.com🔗 GitHub: sonal-katwe
